@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Derek919
-- 👀 I’m interested in being a juruo
+- 👀 I’m interested in football
 - 🌱 I’m currently learning C++
 - 💞️ I’m looking to collaborate on being hung up and hit
 - 📫 Reach me at **********@qq.com
